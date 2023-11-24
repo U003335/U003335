@@ -1,16 +1,15 @@
-### Hi there 👋
+### Fala Beleza ? 👋
 
-<!--
-**U003335/U003335** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+###
 
-Here are some ideas to get you started:
+💻 - Sou da Squad de Gestao e Transacao do cartao 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+💬 - Pode me chamar para qualquer B.O que tamo junto !!! @leonardo.goncalves
+
+###
+
+Se eu demorar a responder ou aprovar o pr pode ter ctz que eu to na correria
+
+<img src="https://gifs.eco.br/wp-content/uploads/2022/02/gifs-do-gatinho-digitando-2.gif" align="center">
+
+### Caso ainda não tenha meu slack só <a href="https://neon.enterprise.slack.com/user/@U03P94MN6D8"> clicar aqui </a> e falar comigo !!!
