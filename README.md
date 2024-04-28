@@ -2,7 +2,7 @@
 
 ###
 
-💻 - Sou da Squad de Gestao e Transacao do cartao 
+💻 - Sou da Squad de Faturas (mas isso nao significa que só irei auxiliar se for sobre faturas, no que eu puder ajudar só me chamar)
 
 💬 - Pode me chamar para qualquer B.O que tamo junto !!! @leonardo.goncalves
 
